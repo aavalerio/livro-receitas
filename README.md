@@ -6,3 +6,7 @@ Bem-vindo ao meu livro de receitas :book:
 
 - Lasanha Vegana
 
+- Falafel
+
+  
+
